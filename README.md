@@ -10,7 +10,5 @@ Meu nome é Miguel
 
   haeussleralfonsmiguel@gmail.com
 
-  @guelito367
-
   ![]( https://media1.tenor.com/m/LO5LF4ge6jgAAAAC/teq-ultimate-gohan-teen-gohan.gif)
  
